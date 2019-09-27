@@ -1,1 +1,0 @@
-# wisr-india.github.io
